@@ -1,0 +1,1 @@
+-Greetings, My name is Arch Hinden and I am a freelance Graphics artist and a Discord bot developer.
